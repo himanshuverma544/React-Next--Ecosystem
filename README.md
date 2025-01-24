@@ -1,1 +1,1 @@
-Happy to see you here. :)
+# Happy to see you here. Let's learn and grow together. :)
